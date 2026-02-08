@@ -1,0 +1,8 @@
+- **Year**: 2025/26/2, Semester 2 
+- **Class Location**: P/106/A
+- **Meeting Times**: Monday 12:00 - 13:30
+- **Contact Information**: Please contact me through email anytime: <abari.kalman@arts.unideb.hu>
+- **Registration table for homework assignments and grades**: [link to the spreadsheet](https://docs.google.com/spreadsheets/d/1n19OVQkLTQ-z99ou7jv0_we5fBoOKrxikJFXGUNXWyc/edit?usp=sharing)
+- **Education manager**: Regina Szegedi <szegedi.regina@arts.unideb.hu>
+    - Business Office: room 16, ground floor, next to the stairs.
+    - Business Office opening hours: Tuesday 10.00–12.00 and Wednesday 9.00–12.00.
